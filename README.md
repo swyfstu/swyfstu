@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sienna
 - 👀 I’m interested in helping creators with their web games or games like ClanGen/LifeGen
 - 🌱 I’m currently learning how to code!!
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on N/A
 - 📫 How to reach me shoot me a friend request on discord= siennasknife
 - 😄 Pronouns: She/They BUT that depends, I am a system so sometimes our pronouns are different
 - ⚡ Fun fact: I'm currently writing a book! Sometimes I won't be actively talking on discord because I'm working on my book!
